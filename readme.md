@@ -24,7 +24,4 @@
 
 ![12](https://ws1.sinaimg.cn/large/006tNc79gy1fow6vingrfj30v20hswfd.jpg)
 
-![1](https://ws1.sinaimg.cn/large/006tNc79gy1fow6vaqh4gj30nr0hsmxz.jpg)
-
-
-
+![1](https://github.com/hedongshu/ps-showroom/blob/master/psb%20(1).jpeg)
